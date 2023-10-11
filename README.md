@@ -1,1 +1,0 @@
-# MJ-TSHAUKE-03
